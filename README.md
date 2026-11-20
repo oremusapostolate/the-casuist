@@ -1,7 +1,7 @@
 # THE CASUIST
 ### A Collection of Cases in Moral and Pastoral Theology
 
-*Published by Joseph F. Wagner, New York (1906–1917) · Public Domain*[cite: 9, 10, 11, 12, 13]
+*Published by Joseph F. Wagner, New York (1906–1917) · Public Domain*
 
 Transcribed page by page from the print editions, with every word preserved, printed page numbers marked in the margin, and connected Latin rendered in literal English[cite: 11, 12, 13].
 
